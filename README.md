@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **aniketchauhan68737@gmail.com**
 
-- 📄 Know about my experiences [https://rb.gy/xiyq0](https://rb.gy/xiyq0)
+- 📄 Know about my experiences [https://shorturl.at/hzX39)
 
 - ⚡ Fun fact **I usually do Programming under water, so nobody could see me cry...!!! 😉**
 
